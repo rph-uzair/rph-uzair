@@ -1,6 +1,6 @@
 # Muhammad Uzair
 
-**PharmD | AI in Healthcare | Health Informatics**
+**PharmD | AI in Healthcare | Medical/Biomedical/Health Informatics**
 
 ---
 
